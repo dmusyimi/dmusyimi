@@ -80,7 +80,7 @@
 
 - 📧 Email: [denniskitakamusyimi@gmail.com](mailto:denniskitakamusyimi@gmail.com)  
 - 📞 Phone: +254 742 261 919  
-- 🌍 Based in Kiambu, Kenya  
+- 🌍 Based in Nairobi, Kenya  
 - 🔗 *(Add your LinkedIn or portfolio site here)*
 
 ---
