@@ -81,7 +81,7 @@
 - 📧 Email: [denniskitakamusyimi@gmail.com](mailto:denniskitakamusyimi@gmail.com)  
 - 📞 Phone: +254 742 261 919  
 - 🌍 Based in Nairobi, Kenya  
-- 🔗 *(Add your LinkedIn or portfolio site here)*
+- 🔗 *linkedin.com/in/dennis-musyimi-a41861260*
 
 ---
 
